@@ -1,1 +1,1 @@
-
+palavras magicas
